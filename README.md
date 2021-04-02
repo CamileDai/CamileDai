@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @CamileD
+- 👀 I’m interested in vlog, music, photography, movies...
+- 🌱 I’m currently learning video editing.
